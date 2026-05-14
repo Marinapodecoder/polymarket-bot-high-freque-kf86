@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with quantitative Polymarket Strategy | cross-chain-arbitrage + order-book-analysis, the #1 strategy. Includes cross-chain-arbitrage and
 
 
 
